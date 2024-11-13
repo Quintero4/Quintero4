@@ -10,7 +10,7 @@
 
 ⚡ Fun fact: I am always eager to expand my knowledge and skills, constantly seeking new challenges and opportunities.
 
-![Alt Text]([https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif])
+![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
 
 
 
